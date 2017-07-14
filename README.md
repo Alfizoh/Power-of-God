@@ -1,2 +1,2 @@
 # Power-of-God
-The power of God is with me as I learn coding
+The mighty power in the Holy Spirit of God is with me as I learn how to code
